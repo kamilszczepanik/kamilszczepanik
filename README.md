@@ -6,6 +6,4 @@
 - 💞️ I’m looking to collaborate on:
       Interesting app/start-up ideas.
 - 📫 How to reach me:
-      Portfolio - 
       LinkedIn - https://www.linkedin.com/in/kamilszczepanik/
-      Instagram - https://www.instagram.com/kamilszczepanik_/

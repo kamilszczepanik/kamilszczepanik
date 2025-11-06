@@ -12,5 +12,5 @@ Tech, Start-ups, Traveling, Sports, Music.
 
 📫 How to reach me:
 - LinkedIn: [kamilszczepanik](https://www.linkedin.com/in/kamilszczepanik/)
-- Portfolio: [kamil-szczepanik-portfolio](https://bit.ly/kamil-szczepanik-portfolio)
+- Portfolio: [kamilszczepanik.com](https://kamilszczepanik.com/)
 - Book a call: [Calendar](https://calendar.app.google/75iDwNbevRdnmhSQ9)
